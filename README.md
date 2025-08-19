@@ -8,7 +8,7 @@ Meu nome é Gustavo Pinheiro
 
 ### Você entrar em contato comigo 📫
 
-blox.dough123@gmail.com
+mello.pinheiro@escola.pr.gov.br
 
 @Gustavo123a11
 
